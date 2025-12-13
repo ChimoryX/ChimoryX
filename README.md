@@ -19,9 +19,10 @@
 
 My pronouns? I *prefer* he/him but i'm okay with any pronouns      
 ━━━━━━━━━━━━━━━━━━━━━━━━━━      
-　🟢 : available / idle      
-　🌙 : offtab / semi-afk / watching youtube / roblox      
-　⛔ : busy / away / overwhelmed     
+> `What does it means?`      
+- 🟢 : available / idle
+- 🌙 : offtab / semi-afk / watching youtube / roblox
+- ⛔ : busy / away / overwhelmed      
 ━━━━━━━━━━━━━━━━━━━━━━━━━━      
 >  `NOTE:`
 - C+H is okay unless it's says otherwise!
