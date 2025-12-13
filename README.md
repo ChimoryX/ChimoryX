@@ -46,4 +46,4 @@ My pronouns? I *prefer* he/him but i'm okay with any pronouns
 - "NOW'S YOUR CHANCE TO BE A [[BIG SHOT]]!!" - Spamton G Spamton
 - "グレートだぜ!" - Josuke Part 4
 - "やれやれだぜ" - Jotaro      
-　　　 　　 　　　　 　　 　　　　 　　 　　　　 　　 　　　　 　　 　　　　 　　 　　　　 *- Sincerely, ChimoryX / Imor.*
+　　　 　　 　　　　 　　 　　　　 　　 　　　　 　　 　　　　 　　 　　　　 　　 　*- Sincerely, ChimoryX / Imor.*
