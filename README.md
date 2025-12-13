@@ -5,9 +5,9 @@
 
 　Hey there! i see you got my message huh? My name is Imor and it was so nice to know that you read this message, to be honest i have a lot of nicknames.. geez okay mister with many nicknames
 
-　Maybe this is a ridiculous and not so important to you, this is a warning and how or when you can *interact* with a person like me. I'm very much an *aggressive person* is what i believe from the damage i've done in my past, which i regret it now honestly.. not something to be proud of even if it's tough it wasn't a reason for me to harm some innocents just because i'm destructive in some way on how people view me, well we all have our own view and opinion right?
+　Maybe this is a ridiculous and not so important to you, this just notes and how or when you can *interact* with me. I'm very much an *aggressive person* cause i irritated to something easily but sometimes i don't even know what that is and just act different to people or just harming people, which i kinda regret it now honestly.. not something to be proud of even if it's tough it wasn't a reason for me to harm some innocents just because i'm destructive in some way on how people view me, well we all have our own view and opinion right?
  
-　Honestly i don't really like dramatic person if their excuse is very unreasonable or somethings not worth to cry or sad to begin with also, i don't care if you can crush me or not; threat me as much as you wanted because i just have to prove my own point and do bad things to you back and i won't let you view me as pathetic as you. I don't fear you, i just don't like to deal with someone like you unless you hit the target. If one day i talked shit about you i won't say the name here because i'll broke my own deal or contract. This is not a threat alright? So chill out! I love people hangin' around w me and mostly i hold it back and the rest? you'll see soon when you know me even deeper.
+　Honestly i don't really like dramatic person if their excuse is very unreasonable or somethings not worth to cry or sad to begin with also, i don't care if you can crush me or not; threat me as much as you wanted because i just have to prove my own point and do bad things to you back and i won't let you view me as pathetic as you. I don't fear you, i just don't like to deal with someone like you unless you hit the target. If one day i talked shit about you i won't say the name here because i'll broke my own deal or contract. This is not a threat alright? So chill out! I love people hangin' around w me and mostly i hold it back and the rest? you'll know it soon when you knew me even deeper.
  
 　Let's go back on track shall we?      
 ━━━━━━━━━━━━━━━━━━━━━━━━━━      
@@ -18,11 +18,6 @@
 4. Lost
 
 My pronouns? I *prefer* he/him but i'm okay with any pronouns      
-━━━━━━━━━━━━━━━━━━━━━━━━━━      
-> `What does it means?`      
-- 🟢 : available / idle
-- 🌙 : offtab / semi-afk / watching youtube / roblox
-- ⛔ : busy / away / overwhelmed      
 ━━━━━━━━━━━━━━━━━━━━━━━━━━      
 >  `NOTE:`
 - C+H is okay unless it's says otherwise!
@@ -36,8 +31,9 @@ My pronouns? I *prefer* he/him but i'm okay with any pronouns
 - Don't be a creep
 - I don't use statuses often just politely ask for C+H if you want to make sure!
 - Under 15? Please keep a distance for your own safety
-- I won't leave unless you leave first from your seat
-- Mentally unstable      
+- you can int with me when i didn't put DNI(U P / C / [FRIEND NAME]) you don't understand? I'll explain it to you even if I'm not in the mood
+- Mentally and emotionally unstable
+- Please remind me if I'm too much or uncontrollable THANKIES!!
 ━━━━━━━━━━━━━━━━━━━━━━━━━━      
 >  `OMG I LOVE YOU SO MUCH :`      
 - "ITS!! TV!! TIME!!📺✨" - Mr. (Ant) Tenna
