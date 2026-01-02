@@ -49,6 +49,7 @@ My pronouns? I *prefer* he/him but i'm okay with any pronouns
 - Terminal Protocol
 - Dandy's world
 - Doki doki literature club
-- Undertale      
+- Undertale
+- Limbus company      
 Etc 'cause i'm a multifandom (exc: FPE or anything related to kpop)
  　　　 　　 　　　　 　　 　　　　 　　 　　　　 　　 　　　　 　　 　　　　 　　 　*- Sincerely, ChimoryX / Imor.*
