@@ -3,16 +3,12 @@
 
 　this is `      ` speaking to you through this short message.
 
-　Hey there! i see you got my message huh? My name is Imor and it was so nice to know that you read this message, to be honest i have a lot of nicknames.. geez okay mister with many nicknames
+　Hey there! i see you got my message huh? My name is Imor and it was so nice to know that you read this message, to be honest i have a lot of nicknames.. geez okay mister with many nicknames. I say we could be friends but i ain't talking first to ya, got it? I am dense but also sensitive to certain stuff idk.. C'mon don't be harsh to me for no reason- like- i'm still a human being with mistake not an animal. To be honest.. i am FCKED in the household with my job being a dealer so please.. Send help
 
-　Maybe this is a ridiculous and not so important to you, this just notes and how or when you can *interact* with me. I'm very much an *aggressive person* cause i irritated to something easily but sometimes i don't even know what that is and just act different to people or just harming people, which i kinda regret it now honestly.. not something to be proud of even if it's tough it wasn't a reason for me to harm some innocents just because i'm destructive in some way on how people view me, well we all have our own view and opinion right?
- 
-　Honestly i don't really like dramatic person if their excuse is very unreasonable or somethings not worth to cry or sad to begin with also, i don't care if you can crush me or not; threat me as much as you wanted because i just have to prove my own point and do bad things to you back and i won't let you view me as pathetic as you. I don't fear you, i just don't like to deal with someone like you unless you hit the target. If one day i talked shit about you i won't say the name here because i'll broke my own deal or contract. This is not a threat alright? So chill out! I love people hangin' around w me and mostly i hold it back and the rest? you'll know it soon when you knew me even deeper.
- 
 　Let's go back on track shall we?      
 ━━━━━━━━━━━━━━━━━━━━━━━━━━      
 > `I go with names such as:`
-1. Imor (DO NOT USE THIS NAME IF YOU'RE NOT CLOSE ENOUGH.)      
+1. Imor      
 2. Night
 3. Sorrow (rarely used.)
 4. Lost
@@ -28,19 +24,23 @@ My pronouns? I *prefer* he/him but i'm okay with any pronouns
 - I accept vents and would listen to you
 - I'll treat you the same as the others
 - Leave if you're incase uncomfortable cause i don't and i won't beg you to even stay lol
-- Don't be a creep
+- Don't mind the aggression it's between care or furious
 - I don't use statuses often just politely ask for C+H if you want to make sure!
 - Under 15? Please keep a distance for your own safety
 - you can int with me when i didn't put DNI(U P / C / [FRIEND NAME]) you don't understand? I'll explain it to you even if I'm not in the mood
 - Mentally and emotionally unstable
 - Please remind me if I'm too much or uncontrollable THANKIES!!
 ━━━━━━━━━━━━━━━━━━━━━━━━━━      
->  `OMG I LOVE YOU SO MUCH :`      
+>  `fictkin and crushes:`      
 - "ITS!! TV!! TIME!!📺✨" - Mr. (Ant) Tenna
-- "My family hasn't been the best to you and your work, but I'd be thankful for a slice of pizza.." - 007n7
-- "Insooth! Justice always prevails!" - Don Quixote
+- "all your base are belong 2 me" - 007n7
+- "To reach the unreachable star!" - Don Quixote
 - "You've filled my heart with hate.. All of you, who have done me wrong.. This will be your fate!" - Odysseus
 - "NOW'S YOUR CHANCE TO BE A [[BIG SHOT]]!!" - Spamton G Spamton
 - "グレートだぜ!" - Josuke Part 4
-- "やれやれだぜ" - Jotaro      
+- "やれやれだぜ" - Jotaro
+- "You dirty liar! You scumbag! You... You made me... You got in my head. You just... You just lie about everything, don't you?! You can mess with minds, too, can't you? The Stupid Sauce, the Vegan thing... God knows what else!" - Jax
+- "Today, I killed mother. Or maybe it was yesterday." - Meursault
+- "As I awoke from unsettling dreams, I had transformed into some hideous pest." - Gregor
+
 　　　 　　 　　　　 　　 　　　　 　　 　　　　 　　 　　　　 　　 　　　　 　　 　*- Sincerely, ChimoryX / Imor.*
