@@ -29,7 +29,7 @@ My pronouns? I *prefer* he/him but i'm okay with any pronouns
 - Under 15? Please keep a distance for your own safety
 - you can int with me when i didn't put DNI(U P / C / [FRIEND NAME]) you don't understand? I'll explain it to you even if I'm not in the mood
 - Mentally and emotionally unstable
-- Please remind me if I'm too much or uncontrollable THANKIES!!
+- Please remind me if I'm too much or uncontrollable THANKIES!!      
 ━━━━━━━━━━━━━━━━━━━━━━━━━━      
 >  `fictkin and crushes:`      
 - "ITS!! TV!! TIME!!📺✨" - Mr. (Ant) Tenna
