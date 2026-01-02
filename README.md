@@ -42,5 +42,13 @@ My pronouns? I *prefer* he/him but i'm okay with any pronouns
 - "You dirty liar! You scumbag! You... You made me... You got in my head. You just... You just lie about everything, don't you?! You can mess with minds, too, can't you? The Stupid Sauce, the Vegan thing... God knows what else!" - Jax
 - "Today, I killed mother. Or maybe it was yesterday." - Meursault
 - "As I awoke from unsettling dreams, I had transformed into some hideous pest." - Gregor
-
-　　　 　　 　　　　 　　 　　　　 　　 　　　　 　　 　　　　 　　 　　　　 　　 　*- Sincerely, ChimoryX / Imor.*
+━━━━━━━━━━━━━━━━━━━━━━━━━━      
+> `my interest:`      
+- Deltarune
+- Forsaken
+- Terminal Protocol
+- Dandy's world
+- Doki doki literature club
+- Undertale      
+Etc 'cause i'm a multifandom (exc: FPE or anything related to kpop)
+ 　　　 　　 　　　　 　　 　　　　 　　 　　　　 　　 　　　　 　　 　　　　 　　 　*- Sincerely, ChimoryX / Imor.*
