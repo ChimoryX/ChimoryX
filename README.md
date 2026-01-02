@@ -34,6 +34,7 @@ My pronouns? I *prefer* he/him but i'm okay with any pronouns
 >  `fictkin and crushes:`      
 - "ITS!! TV!! TIME!!📺✨" - Mr. (Ant) Tenna
 - "all your base are belong 2 me" - 007n7
+- "Be strong. Always be strong." - Guest1337
 - "To reach the unreachable star!" - Don Quixote
 - "You've filled my heart with hate.. All of you, who have done me wrong.. This will be your fate!" - Odysseus
 - "NOW'S YOUR CHANCE TO BE A [[BIG SHOT]]!!" - Spamton G Spamton
