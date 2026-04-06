@@ -3,15 +3,15 @@
 
 　this is `      ` speaking to you through this short message.
 
-　Hey there! i see you got my message huh? My name is Imor and it was so nice to know that you read this message, to be honest i have a lot of nicknames.. geez okay mister with many nicknames. I say we could be friends but i ain't talking first to ya, got it? I am dense but also sensitive to certain stuff idk.. C'mon don't be harsh to me for no reason- like- i'm still a human being with mistake not an animal. To be honest.. i am FCKED in the household with my job being a dealer so please.. Send help
-
-　Let's go back on track shall we?      
+　so i'm going to say this in the nicest way possible.. i hate nonsharing yumeshipper/kin stuff the "omg thats my lover!!" no shot sherlock i hate it for a reason.. just imagine being exist and just liking the same character that you also like to share to someone, yet that someone unfriended you out of 'jealousy'. Lowkey tho that is bs for me and i didn't forgive such because if you do it once to me i won't even look at you anymore because you clearly stepped in the line that you're supposedly not to right? Especially when it's FAMOUS and POPULAR character. Dude that character isn't yours to claim yet i be honest your ship isn't real cause people keep treating you like a baby at this point "OmG yOuR ShIp Is ReAL!!!" you are one horrible liars okay? You make them more eager about this dumb sht.. okay sorry i'm wrong but as long as you're not the toxic nonsharing you're good to go i guess?? sure the "i don't share" but don't hate others for this not existing character like your fcking boyfriend rl, fckass delusional eugh.. wdym cutting yourself over a character?? Your ship is real to YOURSELF not others so don't get pissy cause it's the reality.
+     
 ━━━━━━━━━━━━━━━━━━━━━━━━━━      
-> `I go with names such as:`
+> `Names:`
 1. Imor      
 2. Night
 3. Sorrow (rarely used.)
 4. Lost
+5. Marine
 
 My pronouns? I *prefer* he/him but i'm okay with any pronouns      
 ━━━━━━━━━━━━━━━━━━━━━━━━━━      
@@ -19,17 +19,13 @@ My pronouns? I *prefer* he/him but i'm okay with any pronouns
 - C+H is okay unless it's says otherwise!
 - Don't trigger my emotion.
 - Make yourself valueable
-- Reject my help nicely would be nice
-- I may be harsh and rude but please don't be scared! I'm mostly friendly
-- I accept vents and would listen to you
+- i'm harsh with words so sys.
 - I'll treat you the same as the others
 - Leave if you're incase uncomfortable cause i don't and i won't beg you to even stay lol
-- Don't mind the aggression it's between care or furious
 - I don't use statuses often just politely ask for C+H if you want to make sure!
 - Under 15? Please keep a distance for your own safety
 - you can int with me when i didn't put DNI(U P / C / [FRIEND NAME]) you don't understand? I'll explain it to you even if I'm not in the mood
-- Mentally and emotionally unstable
-- Please remind me if I'm too much or uncontrollable THANKIES!!      
+- Please remind me if I'm too much or uncontrollable.     
 ━━━━━━━━━━━━━━━━━━━━━━━━━━      
 >  `fictkin and crushes:`      
 - "ITS!! TV!! TIME!!📺✨" - Mr. (Ant) Tenna
@@ -51,6 +47,9 @@ My pronouns? I *prefer* he/him but i'm okay with any pronouns
 - Dandy's world
 - Doki doki literature club
 - Undertale
-- Limbus company      
+- Limbus company
+- TADC
+- ETM
+- Backrooms      
 Etc 'cause i'm a multifandom (exc: FPE or anything related to kpop)
  　　　 　　 　　　　 　　 　　　　 　　 　　　　 　　 　　　　 　　 　　　　 　　 　*- Sincerely, ChimoryX / Imor.*
