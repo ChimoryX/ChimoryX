@@ -38,7 +38,8 @@ My pronouns? I *prefer* he/him but i'm okay with any pronouns
 - "やれやれだぜ" - Jotaro
 - "Today, I killed mother. Or maybe it was yesterday." - Meursault
 - "As I awoke from unsettling dreams, I had transformed into some hideous pest." - Gregor
-- "Sheesh not cool dude, Personal space." - Rhett     
+- "Sheesh not cool dude, Personal space." - Rhett
+- "Your secret is safe with me." - Ribbit     
 ━━━━━━━━━━━━━━━━━━━━━━━━━━      
 > `my interest:`      
 - Deltarune
