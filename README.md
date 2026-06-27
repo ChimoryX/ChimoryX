@@ -27,7 +27,7 @@ My pronouns? I *prefer* he/him but i'm okay with any pronouns
 - you can int with me when i didn't put DNI(U P / C / [FRIEND NAME]) you don't understand? I'll explain it to you even if I'm not in the mood
 - Please remind me if I'm too much or uncontrollable.     
 ━━━━━━━━━━━━━━━━━━━━━━━━━━      
->  `fictkin and crushes:`      
+>  `faves line from my fave character:`      
 - "ITS!! TV!! TIME!!📺✨" - Mr. (Ant) Tenna
 - "all your base are belong 2 me" - 007n7
 - "Be strong. Always be strong." - Guest1337
@@ -36,7 +36,6 @@ My pronouns? I *prefer* he/him but i'm okay with any pronouns
 - "NOW'S YOUR CHANCE TO BE A [[BIG SHOT]]!!" - Spamton G Spamton
 - "グレートだぜ!" - Josuke Part 4
 - "やれやれだぜ" - Jotaro
-- "You dirty liar! You scumbag! You... You made me... You got in my head. You just... You just lie about everything, don't you?! You can mess with minds, too, can't you? The Stupid Sauce, the Vegan thing... God knows what else!" - Jax
 - "Today, I killed mother. Or maybe it was yesterday." - Meursault
 - "As I awoke from unsettling dreams, I had transformed into some hideous pest." - Gregor
 - "Sheesh not cool dude, Personal space." - Rhett     
