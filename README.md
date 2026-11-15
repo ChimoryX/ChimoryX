@@ -10,5 +10,5 @@ $\texttt{\color{#FFFFFFFF}Jeff}$
 
   <div align=center> 
    
-<details><summary>$\color{#ffffff}{\textsf{My Axe.}}$</summary>
+<details><summary>$\color{#ffffff}{\textsf{My Bloody Axe.}}$</summary>
 <a href="https://github.com/KXEPEC" target="_blank">KXEPEC<a/> </details>
